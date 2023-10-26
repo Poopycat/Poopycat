@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Poopycat
-- 👀 I’m interested in marathon running
+- 👀 I’m interested in nothing 
 - 🌱 I’m currently learning nothing
 - 💞️ I’m looking to collaborate on... idk
 - 📫 How to reach me... don't
